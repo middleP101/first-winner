@@ -1,4 +1,4 @@
-Hello NDS teams,
+Hello *** teams,
 
 I came across a quote that I felt that I should share with the teams:
 
